@@ -8,6 +8,8 @@ permalink: /projects/
 
 ### November Sidequets
 1. see posts
+2. [NUMBER BLOCKS](https://www.youtube.com/playlist?list=PLDJfhmc_lRW8)
+3. [MISS RACHEL](https://www.youtube.com/playlist?list=PLWKoF2dQyOiA)
 
 ## Current Projects
 
